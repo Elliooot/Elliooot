@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Yun Hua Chih
+# 👋 Hi there, I'm William Chih
 
 🎓 MSc in Information Technology @ University of Glasgow  
 🇹🇼 Originally from Taiwan | Currently based in Glasgow, UK  
